@@ -1,0 +1,2 @@
+# GG
+You noob haha
